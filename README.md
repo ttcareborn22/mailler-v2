@@ -1,4 +1,4 @@
-<h1 align='center'>💳 Mailler V2 Ttca Reborn</h1>
+<h1 align='center'📧 Mailler V2 Ttca Reborn</h1>
 
 <b>💞Mailler V2 Ttca Ini Unutk Melakukan Spam MAILL yang bisa mengubah Nama Email Kalian/b>
 
